@@ -1,6 +1,6 @@
 # Qualifiers
 
-This is a list of lists for qualified participants for events run by the Dogelon Mars community and DAO 🚀 🔴
+This is a list of lists for all qualified participants who entered events organized by the Dogelon Mars community and DAO 🚀 🔴
 
 ## Documents 
 
